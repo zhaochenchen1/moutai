@@ -29,6 +29,8 @@
 #### 特产平台
 
 vx号: mrChain0
+![image](https://github.com/zhaochenchen1/-/assets/40948380/2e8ab1db-6b92-4294-b12c-49af3813cd4c)
+
 
 
 加好友联系获取渠道、方案、各类技巧，进群交流
